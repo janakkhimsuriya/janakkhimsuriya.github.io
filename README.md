@@ -85,3 +85,4 @@ Sr. Software Developer with **9 years of experience** in designing and developin
 - Completed H.S.C in the arts stream with an aggregate of **70.00%**.  
 
 ---
+
